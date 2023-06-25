@@ -1,5 +1,4 @@
-Chapter 7: List Writing for Goal Setting: Tracking Progress and Celebrating Successes
-=====================================================================================
+# Tracking Progress and Celebrating Successes
 
 List writing is a powerful tool for setting and achieving our goals. By breaking down our goals into smaller, manageable steps, we can stay motivated, focused, and accountable towards achieving what we set out to do.
 

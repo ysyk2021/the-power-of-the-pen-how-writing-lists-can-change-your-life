@@ -1,5 +1,4 @@
-Chapter 3: Types of Lists: Different Types of Lists for Different Purposes
-==========================================================================
+# Different Types of Lists for Different Purposes
 
 List writing can be a powerful tool for achieving our goals and improving our lives. In this chapter, we will explore different types of lists that can be used for different purposes.
 

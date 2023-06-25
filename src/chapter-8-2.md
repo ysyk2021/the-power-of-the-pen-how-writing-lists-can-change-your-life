@@ -1,5 +1,4 @@
-Chapter 8: Maintaining a List Writing Practice: Incorporating List Writing into Daily Routines
-==============================================================================================
+# Incorporating List Writing into Daily Routines
 
 List writing can be a powerful tool for improving our daily lives and achieving our goals, but maintaining a consistent list writing practice can sometimes be challenging. One way to overcome this challenge is by incorporating list writing into our daily routines.
 

@@ -1,5 +1,4 @@
-Chapter 5: List Writing for Mental Health: Using List Writing as a Tool for Mental Clarity and Stress Relief
-============================================================================================================
+# Using List Writing as a Tool for Mental Clarity and Stress Relief
 
 List writing can be a powerful tool for promoting mental clarity and stress relief. In this chapter, we will explore how list writing can be used as a tool for managing stress and gaining mental clarity.
 

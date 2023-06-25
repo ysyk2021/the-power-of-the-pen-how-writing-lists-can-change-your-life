@@ -1,5 +1,4 @@
-Chapter 6: List Writing for Productivity: Maximizing Productivity through List Writing
-======================================================================================
+# Maximizing Productivity through List Writing
 
 List writing can be a powerful tool for maximizing productivity and achieving greater success in our personal and professional lives. In this chapter, we will explore how list writing can be used to boost productivity.
 

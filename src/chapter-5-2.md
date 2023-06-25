@@ -1,5 +1,4 @@
-Chapter 5: List Writing for Mental Health: Incorporating List Writing into a Self-Care Routine
-==============================================================================================
+# Incorporating List Writing into a Self-Care Routine
 
 Incorporating list writing into a self-care routine can have numerous benefits for mental health. In this chapter, we will explore why and how to integrate list writing into a self-care routine.
 

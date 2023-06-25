@@ -1,5 +1,4 @@
-Chapter 9: Conclusion: Encouragement to Start or Continue a List Writing Practice
-=================================================================================
+# Encouragement to Start or Continue a List Writing Practice
 
 List writing is a simple yet powerful tool that can positively impact our daily lives and help us achieve our goals. Whether you are just starting out with list writing or have been practicing for a while, it is important to continue to make it a part of your daily routine.
 

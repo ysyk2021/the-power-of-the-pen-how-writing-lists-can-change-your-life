@@ -1,5 +1,4 @@
-Chapter 6: List Writing for Productivity: Combining List Writing with Other Productivity Techniques
-===================================================================================================
+# Combining List Writing with Other Productivity Techniques
 
 List writing is a powerful tool for increasing productivity, but it can be even more effective when combined with other productivity techniques. In this chapter, we will explore how list writing can be combined with other techniques to maximize productivity.
 

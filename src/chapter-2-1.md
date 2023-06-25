@@ -1,5 +1,4 @@
-Chapter 2: Understanding List Writing: History and Evolution of List Writing
-============================================================================
+# History and Evolution of List Writing
 
 List writing has been used for centuries as a tool for organizing thoughts, ideas, and tasks. In this chapter, we will explore the history and evolution of list writing.
 

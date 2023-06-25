@@ -1,5 +1,4 @@
-Chapter 8: Maintaining a List Writing Practice: Overcoming Obstacles to Consistent List Writing
-===============================================================================================
+# Overcoming Obstacles to Consistent List Writing
 
 List writing can be a powerful tool for improving our daily lives and achieving our goals. However, maintaining a consistent list writing practice can sometimes be challenging.
 

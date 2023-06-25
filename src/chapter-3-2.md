@@ -1,5 +1,4 @@
-Chapter 3: Types of Lists: Examples of Helpful Lists to Improve Daily Life
-==========================================================================
+# Examples of Helpful Lists to Improve Daily Life
 
 List writing can be a powerful tool for improving our daily lives. In this chapter, we will explore different types of lists that can help us achieve our goals and increase our productivity.
 
