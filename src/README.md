@@ -8,5 +8,4 @@ This book encourages readers to incorporate list-writing into their daily routin
 
 "The Power of the Pen" is a must-read for anyone who wants to take control of their life and harness the power of list writing as a tool for personal growth and development. Whether you're a busy professional, student, or stay-at-home parent, this book offers practical tips and insights to help you become more organized and productive, leading to greater success and happiness in all areas of your life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
