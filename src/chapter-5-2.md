@@ -1,4 +1,4 @@
-Chapter 8: Incorporating List Writing into a Self-Care Routine
+Incorporating List Writing into a Self-Care Routine
 ==============================================================
 
 In this chapter, we will explore how incorporating list writing into a self-care routine can bring about positive changes in our well-being. Taking care of ourselves is essential for maintaining balance, managing stress, and promoting overall happiness. By utilizing the power of list writing, we can create a personalized self-care plan that supports our mental, emotional, and physical well-being.

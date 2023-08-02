@@ -1,4 +1,4 @@
-Chapter 13: Overview of How Writing Lists Can Positively Impact Your Life
+Overview of How Writing Lists Can Positively Impact Your Life
 =========================================================================
 
 In this chapter, we will provide an overview of the positive impact that writing lists can have on various aspects of your life. By harnessing the power of pen and paper, you can experience significant improvements in organization, productivity, goal achievement, and overall well-being. Let's explore how writing lists can transform your life for the better.

@@ -1,4 +1,4 @@
-Chapter 3: History and Evolution of List Writing
+History and Evolution of List Writing
 ================================================
 
 In this chapter, we will delve into the fascinating history and evolution of list writing. From ancient civilizations to modern times, humans have been using lists as a means of organizing and remembering information. Understanding the roots and development of list writing can provide valuable insights into its significance and enduring relevance in our lives today.

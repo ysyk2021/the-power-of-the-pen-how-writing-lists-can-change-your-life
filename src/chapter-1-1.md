@@ -1,4 +1,4 @@
-Chapter 11: Defining the Power of Writing Lists
+Defining the Power of Writing Lists
 ===============================================
 
 In this chapter, we will delve deeper into the power behind writing lists and explore how this simple yet transformative practice can change your life. Discover the inherent strength of penning your thoughts, ideas, and goals onto paper and unlock the potential for personal growth and fulfillment.

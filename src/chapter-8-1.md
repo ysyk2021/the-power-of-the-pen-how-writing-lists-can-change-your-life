@@ -1,4 +1,4 @@
-Chapter 16: Overcoming Obstacles to Consistent List Writing
+Overcoming Obstacles to Consistent List Writing
 ===========================================================
 
 In this chapter, we will explore common obstacles that can hinder consistent list writing and provide strategies to overcome them. Consistency is key to fully harnessing the power of list writing and reaping its benefits. By identifying and addressing these obstacles, you can establish a strong habit of consistent list writing and experience real transformation in your life. Let's dive into the challenges and solutions to ensure you stay on track with your list writing journey.

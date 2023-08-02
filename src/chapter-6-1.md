@@ -1,4 +1,4 @@
-Chapter 7: Maximizing Productivity through List Writing
+Maximizing Productivity through List Writing
 =======================================================
 
 In this chapter, we will explore how list writing can be a powerful tool for maximizing your productivity. By harnessing the potential of list making and implementing effective strategies, you can supercharge your efficiency, stay organized, and accomplish more in your personal and professional life. From setting goals to managing distractions, these techniques will help you unlock the full potential of your pen and transform your productivity.

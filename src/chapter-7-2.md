@@ -1,4 +1,4 @@
-Chapter 9: Tracking Progress and Celebrating Successes
+Tracking Progress and Celebrating Successes
 ======================================================
 
 In this chapter, we will explore the importance of tracking progress and celebrating successes in our list writing journey. By monitoring our progress and acknowledging our achievements, we can stay motivated, maintain momentum, and experience the transformative power of list writing.

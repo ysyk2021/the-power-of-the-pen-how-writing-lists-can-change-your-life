@@ -1,4 +1,4 @@
-Chapter 10: Using List Writing as a Tool for Mental Clarity and Stress Relief
+Using List Writing as a Tool for Mental Clarity and Stress Relief
 =============================================================================
 
 In this chapter, we will explore how list writing can serve as a powerful tool for achieving mental clarity and relieving stress. By harnessing the pen's power, we can organize our thoughts, declutter our minds, and find solace in the act of writing lists.

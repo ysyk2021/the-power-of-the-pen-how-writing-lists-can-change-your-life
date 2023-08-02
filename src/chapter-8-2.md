@@ -1,4 +1,4 @@
-Chapter 15: Incorporating List Writing into Daily Routines
+Incorporating List Writing into Daily Routines
 ==========================================================
 
 In this chapter, we will explore how you can incorporate the practice of list writing into your daily routines. By making list writing a regular habit, you can harness its transformative power consistently and experience long-lasting positive changes in various areas of your life. Let's discover practical strategies to integrate list writing seamlessly into your daily life.

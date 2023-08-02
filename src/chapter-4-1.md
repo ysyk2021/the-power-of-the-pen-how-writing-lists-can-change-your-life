@@ -1,4 +1,4 @@
-Chapter 6: Strategies for Effective List Writing
+Strategies for Effective List Writing
 ================================================
 
 In this chapter, we will explore strategies to maximize the effectiveness of your list writing practice. By implementing these techniques, you can harness the power of the pen and transform your life through organized and purposeful list making. From structuring your lists to prioritizing tasks, these strategies will help you optimize your productivity and achieve your goals with clarity and focus.

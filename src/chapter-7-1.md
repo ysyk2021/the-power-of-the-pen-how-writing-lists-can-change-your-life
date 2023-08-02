@@ -1,4 +1,4 @@
-Chapter 7: Creating Successful Goals through List Writing
+Creating Successful Goals through List Writing
 =========================================================
 
 In this chapter, we will explore how list writing can help create successful goals and guide us towards achievement. Setting clear and actionable goals is crucial for personal growth and success. By leveraging the power of list writing, we can break down our goals into manageable steps, track progress, and stay motivated along the way.

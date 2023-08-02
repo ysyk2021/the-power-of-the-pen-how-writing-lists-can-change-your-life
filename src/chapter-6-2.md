@@ -1,4 +1,4 @@
-Chapter 9: Combining List Writing with Other Productivity Techniques
+Combining List Writing with Other Productivity Techniques
 ====================================================================
 
 In this chapter, we will explore how combining list writing with other productivity techniques can enhance your effectiveness, time management, and overall life satisfaction. By integrating different strategies, you can maximize the benefits of list writing and create a powerful system for achieving your goals, increasing productivity, and bringing a sense of order and fulfillment to your life.

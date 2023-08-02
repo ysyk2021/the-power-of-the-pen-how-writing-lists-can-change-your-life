@@ -1,4 +1,4 @@
-Chapter 14: Different Types of Lists for Different Purposes
+Different Types of Lists for Different Purposes
 ===========================================================
 
 In this chapter, we will explore the various types of lists that serve different purposes in transforming your life. By understanding the wide range of lists you can create, you can effectively tackle specific goals, enhance productivity, and bring organization to different areas of your life. Let's delve into the power of different types of lists and how they can change your life.
