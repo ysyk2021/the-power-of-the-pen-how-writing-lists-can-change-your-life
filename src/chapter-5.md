@@ -1,5 +1,3 @@
-Chapter 5: List Writing for Mental Health
-=========================================
 
 List writing can be a powerful tool for promoting mental health and well-being. In this chapter, we will explore how list writing can be used to achieve greater mental clarity, reduce stress, and promote self-care.
 

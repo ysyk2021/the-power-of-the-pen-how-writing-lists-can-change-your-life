@@ -1,5 +1,3 @@
-Chapter 2: Understanding List Writing
-=====================================
 
 List writing is a powerful tool for achieving our goals and improving our lives. In this chapter, we will explore the history and evolution of list writing, as well as its benefits for productivity and mental health.
 

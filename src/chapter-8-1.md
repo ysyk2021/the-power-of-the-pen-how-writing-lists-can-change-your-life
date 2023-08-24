@@ -1,4 +1,3 @@
-# Overcoming Obstacles to Consistent List Writing
 
 In this chapter, we will explore the common obstacles that can hinder consistent list writing and discuss strategies to overcome them. By addressing these challenges head-on, you can establish a sustainable list writing practice and harness the full power of the pen to transform your life.
 

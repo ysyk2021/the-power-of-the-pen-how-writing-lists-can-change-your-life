@@ -1,4 +1,3 @@
-# Conclusion
 
 Recap of the Benefits of List Writing
 -------------------------------------

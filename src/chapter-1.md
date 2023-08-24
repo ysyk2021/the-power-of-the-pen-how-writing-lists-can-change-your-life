@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 List writing is a simple yet powerful tool that can positively impact our lives in numerous ways. By putting pen to paper and creating lists, we can gain clarity, reduce stress, and achieve our goals more effectively.
 

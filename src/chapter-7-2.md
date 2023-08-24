@@ -1,4 +1,3 @@
-# Tracking Progress and Celebrating Successes
 
 In this chapter, we will explore the importance of tracking progress and celebrating successes when using list writing to achieve your goals. By effectively monitoring your progress and acknowledging your achievements, you can stay motivated, maintain momentum, and experience the true transformative power of list writing.
 

@@ -1,4 +1,3 @@
-# Benefits of List Writing for Productivity and Mental Health
 
 In this chapter, we will explore the numerous benefits of list writing for both productivity and mental health. By harnessing the power of the pen and creating lists, individuals can experience increased efficiency, organization, and overall well-being.
 

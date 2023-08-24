@@ -1,5 +1,3 @@
-Chapter 7: List Writing for Goal Setting
-========================================
 
 List writing is a powerful tool for goal setting. By breaking down our goals into smaller, manageable steps, we can stay motivated, focused, and accountable towards achieving what we set out to do.
 

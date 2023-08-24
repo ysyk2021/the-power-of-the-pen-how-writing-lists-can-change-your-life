@@ -1,5 +1,3 @@
-Chapter 3: Types of Lists
-=========================
 
 List writing can be a powerful tool for improving our daily lives. In this chapter, we will explore different types of lists that can be used for different purposes, as well as examples of helpful lists to improve daily life.
 

@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 Recap of the Benefits of List Writing
 -------------------------------------
